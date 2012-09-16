@@ -11,4 +11,4 @@ This is a second iteration that is done in a similary embarassingly primitive wa
 My goal is to continually improve this program through various iterations to encourage myself to make many small programs and in doing so
 demonstrate how a simple idea can be developed into something complex. 
 
-At the moment, I'm thinking my third iteration will be written in PHP to make use of an SQL table that gives the precise number ranges that are associated with each LC Class as most of these don't go up to 9999. The long-term goal is to end up with a Drupal module and/or a twitterbot.
+At the moment, I'm thinking my third iteration will be written in PHP to make use of an SQL table that gives the precise number ranges that are associated with each LC Class as most of these don't go up to 9999. The long-term goal is to end up with a Drupal module and maybe a twitterbot but maybe not as an already fine [Bibliomancer Bot] (http://twitter.com/BibliomancerBot/) exists thanks to [Doug Satori] (http://twitter.com/doug_sartori).
