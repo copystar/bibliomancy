@@ -6,7 +6,7 @@ It's to be used as an "oblique strategy" called Bibliomancy. Bibliomancy is the 
 
 The first iteration of this program used a [Google Documents spreadsheet to select random numbers] (http://shorty.aedileworks.com/call-number-generator) that are used to look up elements and piece together a call number
 
-This is a second iteration that is done in a similary embarassingly primitive way using Javascript. It's so rudimentary, it shames me.
+This is a second iteration that is done in a similary embarassingly primitive way using Javascript. It's so rudimentary, it shames me. [http://jsfiddle.net/copystar/H3gHL/2/] (You can see it at work on jsfiddle).
 
 My goal is to continually improve this program through various iterations to encourage myself to make many small programs and in doing so
 demonstrate how a simple idea can be developed into something complex. 
