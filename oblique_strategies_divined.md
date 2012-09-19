@@ -1,5 +1,12 @@
 # Oblique Strategies suggested by Bibliomancy
 
+## September 19, 2012
+> "Adding compost to the soil helps your plants grow stronger which makes them more resistant to the slug. So there you are, the slug helps you to wage war against itself - a neat little virtuous circle".
+
+_from_ The little book of slugs edited by Allan Shepherd and Suzanne Galant
+Leddy Library: SB998.S59 L58 2002
+http://windsor.concat.ca/eg/opac/record/2010287
+
 ## September 4, 2012
 > "But most of the political leaders and army officers of the Kuomintang Left were landlords and not prepared for any revolutionary step".
 
