@@ -1,6 +1,6 @@
 # Oblique Strategies suggested by Bibliomancy
 
-## Septemberr 24, 2012
+## September 24, 2012
 
 >"Humans are the only animals that trip over the same stone twice, as the Spanish saying goes, and she went home thinking that the nameless lover had stumbled again".
 
