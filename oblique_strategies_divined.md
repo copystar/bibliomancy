@@ -1,5 +1,13 @@
 # Oblique Strategies suggested by Bibliomancy
 
+## Septemberr 24, 2012
+
+>"Humans are the only animals that trip over the same stone twice, as the Spanish saying goes, and she went home thinking that the nameless lover had stumbled again".
+
+_from_ An anthology of Basque Short Stories compiled by Mari Jose Olaziregi
+Leddy Library: PH 5397.E8 A56 2004
+http://windsor.concat.ca/eg/opac/record/2034650
+
 ## September 19, 2012
 > "Adding compost to the soil helps your plants grow stronger which makes them more resistant to the slug. So there you are, the slug helps you to wage war against itself - a neat little virtuous circle".
 
