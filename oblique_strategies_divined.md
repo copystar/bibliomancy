@@ -1,5 +1,12 @@
 # Oblique Strategies suggested by Bibliomancy
 
+## September 28, 2012
+
+>"Respect for sovereignty, independence, territorial integrity, and for equality between the states in their mutual relations & in relations with other states".  
+_from_ Russia and the Communist countries : documents, 1946-71  
+Leddy Library: JX7561980  
+http://windsor.concat.ca/eg/opac/record/1194909  
+
 ## September 26, 2012
 
 >"The rocks absorb sunlight and warm the surrounding water, attracting bait-fish and other crappie foods".  
