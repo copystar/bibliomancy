@@ -2,7 +2,7 @@
 
 ## October 2, 2012
 
->"to assemble the knowledge scattered over the face of the earth, to expound its general system to the med with whom we live, and to transmit it to the men who will come after us; in order that the labours of past centuries will not have been in vain for the centuries to come; and that our children, becoming better instructed than we, may at the same time become more virtuous and happy and that we may not die without having deserved well of humankind."  
+>"to assemble the knowledge scattered over the face of the earth, to expound its general system to the men with whom we live, and to transmit it to the men who will come after us; in order that the labours of past centuries will not have been in vain for the centuries to come; and that our children, becoming better instructed than we, may at the same time become more virtuous and happy and that we may not die without having deserved well of humankind."  
 
 _from_ Wikipedia: A new community of practice?  
 Leddy Library: AE100.O88 2009  
