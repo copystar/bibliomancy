@@ -1,5 +1,13 @@
 # Oblique Strategies suggested by Bibliomancy
 
+## November 5, 2012
+
+>"Wooster Beach, the founder of the a movement subsequently known as eclectism, also espoused botanic remedies -- specifically those containing plants indigenous to the United States -- while condemning the regular profession's widespread practice of bloodletting and use of mineral drugs."  
+
+_from_ Popular print and poular medicine: almanacs and health advice in early America  
+Leddy Library: AY31.A1 H67 2008  
+https://windsor.concat.ca/eg/opac/record/2234541  
+
 ## October 2, 2012
 
 >"to assemble the knowledge scattered over the face of the earth, to expound its general system to the men with whom we live, and to transmit it to the men who will come after us; in order that the labours of past centuries will not have been in vain for the centuries to come; and that our children, becoming better instructed than we, may at the same time become more virtuous and happy and that we may not die without having deserved well of humankind."  
@@ -35,7 +43,7 @@ http://windsor.concat.ca/eg/opac/record/2034650
 ## September 19, 2012
 > "Adding compost to the soil helps your plants grow stronger which makes them more resistant to the slug. So there you are, the slug helps you to wage war against itself - a neat little virtuous circle".
 
-_from_ The little book of slugs edited by Allan Shepherd and Suzanne Galant
+_from_ The little book of slugs edited by Allan Shepherd and Suzanne Galant  
 Leddy Library: SB998.S59 L58 2002  
 http://windsor.concat.ca/eg/opac/record/2010287
 
