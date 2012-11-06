@@ -1,5 +1,14 @@
 # Oblique Strategies suggested by Bibliomancy
 
+## November 6, 2012
+
+>"Estimates of zooplankton community grazing impact on the Washington shelf can be derived from observed abundances of suspension-feeding taxa during the 1981 and 1982 field experiments and previous assumptions regarding their feeding rights."  
+
+_from_ Coastal Oceanography of Washington and Oregon  
+Leddy Library: GC856.C62 1989  
+https://windsor.concat.ca/eg/opac/record/1633817  
+
+
 ## November 5, 2012
 
 >"Wooster Beach, the founder of the a movement subsequently known as eclectism, also espoused botanic remedies -- specifically those containing plants indigenous to the United States -- while condemning the regular profession's widespread practice of bloodletting and use of mineral drugs."  
