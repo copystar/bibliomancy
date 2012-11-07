@@ -1,12 +1,20 @@
 # Oblique Strategies suggested by Bibliomancy
 
+## Novemberr 7, 2012
+
+>"The eldest son bears one of the higher titles during his father's lifetime, and the other sons and daughers use the family name."  
+
+_from_ Forms of address: including honours, orders, decorations and medals, religious orders, academic degress  
+Leddy Library: CR3515 .N39  
+http://windsor.concat.ca/eg/opac/record/1004759  
+
 ## November 6, 2012
 
 >"Estimates of zooplankton community grazing impact on the Washington shelf can be derived from observed abundances of suspension-feeding taxa during the 1981 and 1982 field experiments and previous assumptions regarding their feeding rights."  
 
 _from_ Coastal Oceanography of Washington and Oregon  
 Leddy Library: GC856.C62 1989  
-https://windsor.concat.ca/eg/opac/record/1633817  
+http://windsor.concat.ca/eg/opac/record/1633817  
 
 
 ## November 5, 2012
@@ -15,7 +23,7 @@ https://windsor.concat.ca/eg/opac/record/1633817
 
 _from_ Popular print and poular medicine: almanacs and health advice in early America  
 Leddy Library: AY31.A1 H67 2008  
-https://windsor.concat.ca/eg/opac/record/2234541  
+http://windsor.concat.ca/eg/opac/record/2234541  
 
 ## October 2, 2012
 
