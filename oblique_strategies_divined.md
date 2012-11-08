@@ -1,5 +1,13 @@
 # Oblique Strategies suggested by Bibliomancy
 
+## November 8, 2012
+
+>"An example of the latter application is the work on the treatment of plutonium-containing laundry wastes, where very high does of reagents are needed to effect chemical treatement because of the presence of complexing agents, soals, and detergents; normal treatment is to use NaOH to make a solution of pH12, add CaCl2 to inactivatee the complexing agents and activated silica to aid flocculation.  
+
+_from_ Atomic energy waste: its nature, use and disposal  
+Leddy Library: TD812.G55  
+http://windsor.concat.ca/eg/opac/record/1293226  
+
 ## Novemberr 7, 2012
 
 >"The eldest son bears one of the higher titles during his father's lifetime, and the other sons and daughers use the family name."  
