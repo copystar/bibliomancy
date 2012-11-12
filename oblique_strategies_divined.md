@@ -1,5 +1,14 @@
 # Oblique Strategies suggested by Bibliomancy
 
+## November 12, 2012
+
+>"COW, _v_.2 _tr_. To beat, surpass: "That cows a;" (N, W), "That cows the gowan" (= that surpasses all belief). N,S. [E. _cow_ to intimidate. Cf. s.w. Sc. (1864) _to cow the gowan_ to excel.]  
+
+_from_ The Roxburghshire word-book , being a record of the special vernacular vocabulary of the county of Roxburgh, with an appendix of specimens, by George Watson  
+Leddy Library: PE2322 .W3  
+http://windsor.concat.ca/eg/opac/record/1407807  
+
+
 ## November 8, 2012
 
 >"An example of the latter application is the work on the treatment of plutonium-containing laundry wastes, where very high does of reagents are needed to effect chemical treatement because of the presence of complexing agents, soals, and detergents; normal treatment is to use NaOH to make a solution of pH12, add CaCl2 to inactivatee the complexing agents and activated silica to aid flocculation.  
