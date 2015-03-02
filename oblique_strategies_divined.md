@@ -1,5 +1,14 @@
 # Oblique Strategies suggested by Bibliomancy
 
+## March 2, 2014
+
+>"These are the foundations, below which families are built accounting to Rule 1. 
+
+_from_ Dick's games of patience; or, Solitaire with cards. 2d series; containing seventy games illustrated with sixty-six explanatory tableaux  
+Leddy Library: GV1261 .D56  
+http://goo.gl/SjghUH   
+Read online: https://archive.org/stream/dicksgamespatie00unkngoog#page/n95/mode/2up  
+
 ## November 12, 2012
 
 >"COW, _v_.2 _tr_. To beat, surpass: "That cows a;" (N, W), "That cows the gowan" (= that surpasses all belief). N,S. [E. _cow_ to intimidate. Cf. s.w. Sc. (1864) _to cow the gowan_ to excel.]  
