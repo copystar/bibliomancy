@@ -8,6 +8,7 @@ _from_ Dick's games of patience; or, Solitaire with cards. 2d series; containing
 Leddy Library: GV1261 .D56  
 http://goo.gl/SjghUH   
 Read online: https://archive.org/stream/dicksgamespatie00unkngoog#page/n95/mode/2up  
+It has a beautiful cover: https://plus.google.com/photos/106291540024020424135/albums/6121706639488764721/6121706639381145890?pid=6121706639381145890&oid=106291540024020424135  
 
 ## November 12, 2012
 
