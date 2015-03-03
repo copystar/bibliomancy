@@ -1,6 +1,15 @@
 # Oblique Strategies suggested by Bibliomancy
 
-## March 2, 2014
+## March 3, 2015
+
+>"Mais l'armée dut se replier jusque derrière l'Yser en Flandre occidentale et la majeure partie du pays se trouva sous l'occupation allemade. 
+
+_from_ Belgitude et crise de l'Etat belge : actes du colloque      
+Leddy Library: DH690 .B43 1989    
+http://goo.gl/Ko67w7    
+
+
+## March 2, 2015
 
 >"These are the foundations, below which families are built accounting to Rule 1. 
 
