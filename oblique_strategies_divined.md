@@ -1,5 +1,15 @@
 # Oblique Strategies suggested by Bibliomancy
 
+## March 4, 2015
+
+>"The whole consideration, therefore, leads me to the conclusion that the chief task for the Cavalry consists in obtaining a victory over the enemy's Cavalry in that direction which is of decisive importance for the further prosecution of reconnaissance as soon after the beginning of the great operations as possible.  
+
+_from_ Cavalry in future wars        
+Leddy Library: UE145 .B452 1909    
+http://goo.gl/vamYt4      
+Read online: https://openlibrary.org/books/OL7149569M/Cavalry_in_future_wars
+
+
 ## March 3, 2015
 
 >"Mais l'armée dut se replier jusque derrière l'Yser en Flandre occidentale et la majeure partie du pays se trouva sous l'occupation allemade. 
