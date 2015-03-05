@@ -1,5 +1,15 @@
 # Oblique Strategies suggested by Bibliomancy
 
+## March 5, 2015
+
+>"The demise of Comecon automatically placed on the agenda the question of a successor organization.  
+
+_from_ Handbook of Reconstruction in Eastern Europe & the Soviet Union        
+Leddy Library: HC244 .H344 1991     
+http://goo.gl/dSZWEp      
+Comecon: https://en.wikipedia.org/wiki/Comecon
+
+
 ## March 4, 2015
 
 >"The whole consideration, therefore, leads me to the conclusion that the chief task for the Cavalry consists in obtaining a victory over the enemy's Cavalry in that direction which is of decisive importance for the further prosecution of reconnaissance as soon after the beginning of the great operations as possible.  
