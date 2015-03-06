@@ -1,5 +1,14 @@
 # Oblique Strategies suggested by Bibliomancy
 
+## March 6, 2015
+
+>"The most important element in reducing atmospheric carbon dioxide is the weathering of minerals known as silicates such as mica and feldspar (contained within granite).    
+
+_from_ Rare Earth: Why Complex Life Is Uncommon in the Universe          
+Leddy Library: QB54 .W336 2000       
+http://goo.gl/huhY8p        
+Excerpt from Google Books: http://goo.gl/27qTVp  
+
 ## March 5, 2015
 
 >"The demise of Comecon automatically placed on the agenda the question of a successor organization.  
