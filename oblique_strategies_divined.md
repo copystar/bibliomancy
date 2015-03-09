@@ -1,5 +1,14 @@
 # Oblique Strategies suggested by Bibliomancy
 
+## March 9, 2015
+
+>"Earthly and heavenly contrasted: man should choose the wheat and leave the chaff    
+
+_from_ Configurations: a topographical approach to Renaissance Poetry          
+Leddy Library: PN1181 .R67 1994       
+http://goo.gl/vy6abu  
+
+
 ## March 6, 2015
 
 >"The most important element in reducing atmospheric carbon dioxide is the weathering of minerals known as silicates such as mica and feldspar (contained within granite).    
