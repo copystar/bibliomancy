@@ -1,5 +1,14 @@
 # Oblique Strategies suggested by Bibliomancy
 
+## March 10, 2015
+
+>"Forty-four new contributors were added to the 1992 edition, including Jefferson W. Tester, professor of chemical engineering at MIT (Geothermal Energy), and Louise Bates Ames, associate director of the Gessell Institute of HUman Development (Child Development).     
+
+_from_ Purchasing an encyclopedia: twelve points to consider  
+Leddy Library: AE1 .A48 1992  
+http://goo.gl/Sh8b4x  
+
+
 ## March 9, 2015
 
 >"Earthly and heavenly contrasted: man should choose the wheat and leave the chaff    
