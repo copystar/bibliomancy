@@ -1,5 +1,14 @@
 # Oblique Strategies suggested by Bibliomancy
 
+## March 11, 2015
+
+>"Generally, the strip roads are prepared by passing the tractor and empty sleds over the roads one or two days before hauling.     
+
+_from_ Snow Road Preparation in Scandinavia    
+Leddy Library: TE245 .A8    
+http://goo.gl/BFRaup  
+
+
 ## March 10, 2015
 
 >"Forty-four new contributors were added to the 1992 edition, including Jefferson W. Tester, professor of chemical engineering at MIT (Geothermal Energy), and Louise Bates Ames, associate director of the Gessell Institute of HUman Development (Child Development).     
