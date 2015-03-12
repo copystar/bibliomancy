@@ -1,5 +1,14 @@
 # Oblique Strategies suggested by Bibliomancy
 
+## March 12, 2015
+
+>"Von seinen idealistischen Standpunkt aus ist auch das Urteil Treitschkes über die Sozialdemokratie zu verstehen. 
+
+_from_ Die Wahlrechsfrage in der Geschichte der deutschen liberalen Parteien, 1848-1918  
+Leddy Library: JN3809 .G3  
+http://goo.gl/mzNRqR  
+
+
 ## March 11, 2015
 
 >"Generally, the strip roads are prepared by passing the tractor and empty sleds over the roads one or two days before hauling.     
