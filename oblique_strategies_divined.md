@@ -1,5 +1,13 @@
 # Oblique Strategies suggested by Bibliomancy
 
+## March 16, 2015
+
+>"An outstanding feature of Groningen is its ship-building industry.  
+
+_from_ All about Holland  
+Leddy Library: DJ16 .E5  
+http://goo.gl/k79Kfu  
+
 ## March 12, 2015
 
 >"Von seinen idealistischen Standpunkt aus ist auch das Urteil Treitschkes über die Sozialdemokratie zu verstehen. 
