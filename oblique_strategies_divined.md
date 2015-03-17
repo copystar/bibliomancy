@@ -1,5 +1,13 @@
 # Oblique Strategies suggested by Bibliomancy
 
+## March 17, 2015
+
+>"It is one of the virtues of the constructivist school that it has realized this, and hence treats as an empirical problem what the functionalists are tempted to settle _a priori_.  
+
+_from_ The Social science encyclopedia   
+Leddy Library: H41 .S63 1985  
+http://goo.gl/lrb2Jn    
+
 ## March 16, 2015
 
 >"An outstanding feature of Groningen is its ship-building industry.  
