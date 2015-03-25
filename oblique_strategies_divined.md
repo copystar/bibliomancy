@@ -1,5 +1,13 @@
 # Oblique Strategies suggested by Bibliomancy
 
+## March 25, 2015
+
+>"In place of "Castro originals at _Gramma_, the ICRT, and as ministers of commincations, education and foreign affairs, will soon come younger technically qualified and ideologically reliable media bureaucrats and editors.  
+
+_from_ Journalism in Cuba   
+Leddy Library: PN4934 .H37 1987  
+http://goo.gl/ncc5WP    
+
 ## March 17, 2015
 
 >"It is one of the virtues of the constructivist school that it has realized this, and hence treats as an empirical problem what the functionalists are tempted to settle _a priori_.  
