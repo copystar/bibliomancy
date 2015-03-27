@@ -1,4 +1,12 @@
-# Oblique Strategies suggested by Bibliomancy
+# Oblique Strategies suggested by Bibliomancy  
+
+## March 27, 2015  
+
+>"The chemical solution is brushed on with a long-haired brush (Figure 82A) or stippled on with a shorter-haired brush (Figure 82B), or sprayed on with an ordinary spray bottle or air brust (Figure 82C).  
+
+_from_ Methods for MODERN SCULPTORS  
+Leddy Library: NB1170 .Y68  
+http://goo.gl/wBcOLL  
 
 ## March 25, 2015
 
