@@ -1,5 +1,14 @@
 # Oblique Strategies suggested by Bibliomancy  
 
+## March 31, 2015  
+
+>"Il faut des pommes de choix pour le marché de Paris et des autres grandes villed de France.  
+
+_from_ La province de Québec à l'Exposition de Paris, 1900; rapport.  
+Leddy Library: T804.G1 C2  
+http://goo.gl/tbj2AQ  
+See also: https://archive.org/details/cihm_72122  
+
 ## March 27, 2015  
 
 >"The chemical solution is brushed on with a long-haired brush (Figure 82A) or stippled on with a shorter-haired brush (Figure 82B), or sprayed on with an ordinary spray bottle or air brust (Figure 82C).  
