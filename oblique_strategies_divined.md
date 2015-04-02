@@ -1,5 +1,13 @@
 # Oblique Strategies suggested by Bibliomancy  
 
+## April 2, 2015  
+
+>"In Romania it's called mamaliga, and in Italy it's called polenta.  
+
+_from_ So what if you can't chew, eat hearty! : Recipes and a guide for the healthy and happy eating of soft and pureed foods.  
+Leddy Library: RK480 .G64  
+http://goo.gl/kbs8SK  
+
 ## March 31, 2015  
 
 >"Il faut des pommes de choix pour le marché de Paris et des autres grandes villed de France.  
