@@ -1,5 +1,13 @@
 # Oblique Strategies suggested by Bibliomancy  
 
+## April 6, 2015  
+
+>"In scondary schools, specifically title courses in drama and theatre arts are much more common than in the elementary and junior highs.  
+
+_from_ Face of the future : the report of the National Inquiry into Arts & Education in Canada.  
+Leddy Library: NX313.A1 C35  
+http://goo.gl/aVso4U  
+
 ## April 2, 2015  
 
 >"In Romania it's called mamaliga, and in Italy it's called polenta.  
