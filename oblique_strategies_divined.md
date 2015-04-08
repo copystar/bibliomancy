@@ -1,5 +1,13 @@
 # Oblique Strategies suggested by Bibliomancy  
 
+## April 8, 2015  
+
+>"Tiger claws are used as a sedative, teeth for fever and nose leather for dot bits in the Lao People's Democratic Republic.  
+
+_from_ Canada's Role in the Tiger Trade.  
+Leddy Library: SK593.T5 C43 1996  
+http://goo.gl/SHpcLx  
+
 ## April 6, 2015  
 
 >"In scondary schools, specifically title courses in drama and theatre arts are much more common than in the elementary and junior highs.  
