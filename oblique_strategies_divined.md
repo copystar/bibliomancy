@@ -2,7 +2,7 @@
 
 ## April 8, 2015  
 
->"Tiger claws are used as a sedative, teeth for fever and nose leather for dot bits in the Lao People's Democratic Republic.  
+>"Tiger claws are used as a sedative, teeth for fever and nose leather for dog bites in the Lao People's Democratic Republic.  
 
 _from_ Canada's Role in the Tiger Trade.  
 Leddy Library: SK593.T5 C43 1996  
