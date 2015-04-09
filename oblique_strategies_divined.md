@@ -1,5 +1,13 @@
 # Oblique Strategies suggested by Bibliomancy  
 
+## April 9, 2015
+
+>"PALMER, A. R. 1982. Fossils of Dresbachian and Franconcian (Cambrian) age from the sub-surface of Western Indiana. Indiana Department of Natural Resources Geological Survey Special Report 29. 12 pp.  
+  
+_from_ Trilobites of the Upper Cambrian Sunwaptan stage, southern Canadian Rocky Mountains, Alberta  
+Leddy Library: QE821 .W44 1986  
+http://goo.gl/p7xg9a  
+  
 ## April 8, 2015  
 
 >"Tiger claws are used as a sedative, teeth for fever and nose leather for dog bites in the Lao People's Democratic Republic.  
