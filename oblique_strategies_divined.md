@@ -2,11 +2,12 @@
 
 ## April 9, 2015
 
->"PALMER, A. R. 1982. Fossils of Dresbachian and Franconcian (Cambrian) age from the sub-surface of Western Indiana. Indiana Department of Natural Resources Geological Survey Special Report 29. 12 pp.  
+>"PALMER, A. R. 1982. Fossils of Dresbachian and Franconian (Cambrian) age from the sub-surface of Western Indiana. Indiana Department of Natural Resources Geological Survey Special Report 29. 12 pp.  
   
 _from_ Trilobites of the Upper Cambrian Sunwaptan stage, southern Canadian Rocky Mountains, Alberta  
 Leddy Library: QE821 .W44 1986  
 http://goo.gl/p7xg9a  
+See also: https://scholarworks.iu.edu/dspace/bitstream/handle/2022/12947/Fossils+of+Dresbachian+and+Franconian+%28Cambrian%29+Age+from+the+Subsurface+of+West-Central+Indiana.pdf?sequence=1  
   
 ## April 8, 2015  
 
