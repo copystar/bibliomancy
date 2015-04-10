@@ -1,5 +1,17 @@
 # Oblique Strategies suggested by Bibliomancy  
 
+## April 10, 2015
+
+>"The Fisher-man, 1.  
+catcheth fish,  
+either on the Shoar,  
+with an Hook  
+
+_from_ Orbis sensualium pictus, 1659.  
+Leddy Library: LT101 .C613   
+http://goo.gl/D6W1AM  
+See also:  http://goo.gl/ANkc8u  
+
 ## April 9, 2015
 
 >"PALMER, A. R. 1982. Fossils of Dresbachian and Franconian (Cambrian) age from the sub-surface of Western Indiana. Indiana Department of Natural Resources Geological Survey Special Report 29. 12 pp.  
