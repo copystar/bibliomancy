@@ -3,6 +3,7 @@
 ## April 13, 2015
 
 >"Nevertheless there is some evidence of systematic discrepancies.  
+
 _from_ Measure of the moon . Proceedings of the second International Conference on Selenodesy and Lunar Topography held in the University of Manchester, England, May 30-June 4, 1966  
 Leddy Library: QB581 .I57 1966  
 http://goo.gl/OTX7eT  
