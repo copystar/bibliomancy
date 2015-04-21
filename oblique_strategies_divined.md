@@ -1,5 +1,14 @@
 # Oblique Strategies suggested by Bibliomancy  
 
+## April 21, 2015
+
+>"In the Upper Palacolithic period of northern Europe before the end of the last glaciation the archaeological evidence indicates that some groups of human hunters depended on the reindeer as much as the Laplanders of today and they lived by following the vast herds of migrating deer.  
+
+_from_ Domesticated animals from early times    
+Leddy Library: SF41 .C58 1981    
+http://goo.gl/SvU3ZD  
+
+
 ## April 13, 2015
 
 >"Nevertheless there is some evidence of systematic discrepancies.  
