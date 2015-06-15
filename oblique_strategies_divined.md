@@ -1,5 +1,14 @@
 # Oblique Strategies suggested by Bibliomancy  
 
+## June 15, 2015
+
+>"Il la reperdra en septembre 1950, pour un espionnage économique en faveur de l'U.R.S.S.  
+
+_from_ L'espionnage soviétique en France, 1944-1969    
+Leddy Library: DC404 .F3    
+http://goo.gl/i48qzJ  
+
+
 ## April 21, 2015
 
 >"In the Upper Palacolithic period of northern Europe before the end of the last glaciation the archaeological evidence indicates that some groups of human hunters depended on the reindeer as much as the Laplanders of today and they lived by following the vast herds of migrating deer.  
