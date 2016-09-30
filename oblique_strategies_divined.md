@@ -4,9 +4,9 @@
   
 >"It forces us to think critically about such labels as "region" and "nation," and the privileges role of these facile categories in how we carve up the world
   
-_from_ The Black Sea: a history
-Leddy Library: DJK66 .K56 2004
-http://primo.uwindsor.ca/UWINDSOR:ALMA:UWINDSOR_ALMA21198795860002181
+_from_ The Black Sea: a history  
+Leddy Library: DJK66 .K56 2004  
+http://primo.uwindsor.ca/UWINDSOR:ALMA:UWINDSOR_ALMA21198795860002181  
   
   
 ## June 15, 2015
