@@ -1,5 +1,14 @@
 # Oblique Strategies suggested by Bibliomancy  
   
+## October 3, 2016  
+  
+>"In 1797 Godwin married MARY WOLLSTONECRAFT who dies in childbirth some 5 months later (the child survived to become Mary Shelley, author of _Frankenstein_  
+
+_from_ The Blackwell encyclopaedia of political thought  
+Leddy Library: JA61 .B57 1987  
+http://primo.uwindsor.ca/UWINDSOR:ALMA:UWINDSOR_ALMA21193567910002181  
+
+
 ## September 30, 2016
   
 >"It forces us to think critically about such labels as "region" and "nation," and the privileges role of these facile categories in how we carve up the world
