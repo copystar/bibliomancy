@@ -1,5 +1,13 @@
 # Oblique Strategies suggested by Bibliomancy  
   
+## October 11, 2016  
+  
+>"Or he could boast about having placed his genitals near hers during the dance.  
+  
+  _from_ Folklore by the Fireside  
+ Leddy Library: 177 .T8 F34 1980
+  
+
 ## October 3, 2016  
   
 >"In 1797 Godwin married MARY WOLLSTONECRAFT who dies in childbirth some 5 months later (the child survived to become Mary Shelley, author of _Frankenstein_  
