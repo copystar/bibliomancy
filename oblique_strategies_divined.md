@@ -1,11 +1,20 @@
 # Oblique Strategies suggested by Bibliomancy  
   
+## October 17, 2016  
+  
+>"Our Fraternity, therefor, becomes a valuable, necessary, and complementary adjunct to the College.  
+_from_ The golden book of Tau Kappa Epsilon, 1899-1949.  
+Leddy Library: LJ 75 .T37 L4  
+http://primo.uwindsor.ca/UWINDSOR:ALMA:UWINDSOR_ALMA21231662630002181  
+
+  
 ## October 11, 2016  
   
 >"Or he could boast about having placed his genitals near hers during the dance.  
   
-  _from_ Folklore by the Fireside  
- Leddy Library: 177 .T8 F34 1980
+_from_ Folklore by the Fireside : text and context of the Tuscan veglia    
+Leddy Library: 177 .T8 F34 1980
+http://primo.uwindsor.ca/UWINDSOR:ALMA:UWINDSOR_ALMA21203969170002181  
   
 
 ## October 3, 2016  
