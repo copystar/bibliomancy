@@ -2,7 +2,7 @@
   
 ## October 17, 2016  
   
->"Our Fraternity, therefor, becomes a valuable, necessary, and complementary adjunct to the College.  
+>"Our Fraternity, therefore, becomes a valuable, necessary, and complementary adjunct to the College.  
 _from_ The golden book of Tau Kappa Epsilon, 1899-1949.  
 Leddy Library: LJ 75 .T37 L4  
 http://primo.uwindsor.ca/UWINDSOR:ALMA:UWINDSOR_ALMA21231662630002181  
