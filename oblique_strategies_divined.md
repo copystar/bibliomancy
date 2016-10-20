@@ -1,5 +1,13 @@
 # Oblique Strategies suggested by Bibliomancy  
   
+## October 20, 2016  
+  
+>"But he preferred the flowers of his native region -- the tulips, dahlias, poppies, irises, bluebells, and the ponderous sunflowers -- that grew in his gardens at Utenwarf and Seebüll and were expressive of his inner visions. 
+_from_ Flowers and Animals -- Watercolors and Drawings  
+Leddy Library: ND1954.N6 U713 
+http://primo.uwindsor.ca/UWINDSOR:ALMA:UWINDSOR_ALMA21213014470002181  
+
+
 ## October 17, 2016  
   
 >"Our Fraternity, therefore, becomes a valuable, necessary, and complementary adjunct to the College.  
