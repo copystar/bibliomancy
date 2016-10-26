@@ -1,5 +1,12 @@
 # Oblique Strategies suggested by Bibliomancy  
   
+## October 24, 2016  
+>"In der Praxis bürgerte sich schließlich die Gewohnheit ein, daß aus Polen kommende Postsenddugen mit der Anschrift „Gdańsk" von der polinishchen Post, die mit der Anschrift „Danzig" von der Danziger Post zugestellt wurden, ganz unabhängig von der „grünen Linie".  
+  
+_from_ Deutschen Ostgebiete zur Zeit de Weimarer Republik  
+Leddy Library: DD732.2 .S78Heft3  
+http://primo.uwindsor.ca/UWINDSOR:ALMA:UWINDSOR_ALMA21195752260002181  
+
 ## October 20, 2016  
   
 >"But he preferred the flowers of his native region -- the tulips, dahlias, poppies, irises, bluebells, and the ponderous sunflowers -- that grew in his gardens at Utenwarf and Seebüll and were expressive of his inner visions. 
