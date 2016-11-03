@@ -1,5 +1,13 @@
 # Oblique Strategies suggested by Bibliomancy  
   
+## November 3, 2016  
+>"At the age of fourteen he was bound apprentice to Ralph Beiby, copperplate engraver, and heartbroken, said good-bye to his care-free boyhood, the whins and the open air."  
+
+_from_ A history of wood-engraving
+Leddy Library: NE1030 .B561964  
+http://primo.uwindsor.ca/UWINDSOR:ALMA:UWINDSOR_ALMA21201540690002181  
+
+
 ## October 24, 2016  
 >"In der Praxis bürgerte sich schließlich die Gewohnheit ein, daß aus Polen kommende Postsenddugen mit der Anschrift „Gdańsk" von der polinishchen Post, die mit der Anschrift „Danzig" von der Danziger Post zugestellt wurden, ganz unabhängig von der „grünen Linie".  
   
