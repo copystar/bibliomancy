@@ -1,5 +1,13 @@
 # Oblique Strategies suggested by Bibliomancy  
   
+## November 4, 2016  
+>"Now let us inquire into the nature of the frequency distributions that can be formed by classifying the commodity classes according to such criteria as the following: average distance of haul, median distance of haul and proportion of total carloads shipped less than an indicated distance.  
+
+_from_ Commodity flow interconnections within the United States as reflected in the carload waybill analyses of the Interstate Commerce Commission, 1949-1950  
+Leddy Library: HE 2355 .C6  
+http://primo.uwindsor.ca/UWINDSOR:ALMA:UWINDSOR_ALMA21224192620002181  
+
+
 ## November 3, 2016  
 >"At the age of fourteen he was bound apprentice to Ralph Beiby, copperplate engraver, and heartbroken, said good-bye to his care-free boyhood, the whins and the open air."  
 
