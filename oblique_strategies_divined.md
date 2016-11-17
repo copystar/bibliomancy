@@ -1,4 +1,12 @@
 # Oblique Strategies suggested by Bibliomancy  
+
+## November 17, 2016  
+>"Here all of emily's experiences for the past year were jotted down in note form.  
+
+_from_ A little bird told me : family secrets, necessary lies  
+Leddy Library: CS2009 .R872 2002  
+http://primo.uwindsor.ca/UWINDSOR:ALMA:UWINDSOR_ALMA21228932610002181  
+
   
 ## November 4, 2016  
 >"Now let us inquire into the nature of the frequency distributions that can be formed by classifying the commodity classes according to such criteria as the following: average distance of haul, median distance of haul and proportion of total carloads shipped less than an indicated distance.  
