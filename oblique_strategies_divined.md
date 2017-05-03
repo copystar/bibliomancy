@@ -1,5 +1,14 @@
 # Oblique Strategies suggested by Bibliomancy  
 
+## May 3rd, 2017
+>"Man kӧnnte von einer Glaubengemeinschaft dieses stoischen Ideals und dieser stroichen Menschen reden. 
+>("One could speak of a faith-community of this Stoic ideal and of these people)
+
+_from_ The problems of civilizations: reports of the First Synopsis Conference of the S. I. E. C. C., Salzburg, 8-15, October, 1961.
+Leddy Library: CB 3 .I767 1961 
+http://primo.uwindsor.ca/UWINDSOR:ALMA:UWINDSOR_ALMA21219326940002181
+
+
 ## November 17, 2016  
 >"Here all of emily's experiences for the past year were jotted down in note form.  
 
